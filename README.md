@@ -1,1 +1,1 @@
-# Dzie--nauczyciela
+# Dzie-nauczyciela
